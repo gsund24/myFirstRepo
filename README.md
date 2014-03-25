@@ -1,2 +1,1 @@
-Hey! hey! HEY! Read me!
-I am an attention whore
+Oh hi! Hey! hey! HEY! Reeeeeeeeeeeeead meeeeeeeeeeeee! I am an attention whore
